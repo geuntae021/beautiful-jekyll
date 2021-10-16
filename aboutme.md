@@ -19,6 +19,9 @@ My name is Kim geuntae
 [🎤 MIGYO (미교)](https://www.instagram.com/jjeon_migyo/)  
 [⛏ DEVELOP]()  
 
+## 친구들의 말  
+A : 혁명적인 개**
+
 ### MY SNS
 
 [INSTAGRAM](https://link.geuntae.pw/instagram.html)  
@@ -40,3 +43,4 @@ My name is Kim geuntae
 
 [EMAIL 1](https://link.geuntae.pw/email.html)  
 [EMAIL 2](mailto:kimgeuntae@team-all.xyz)  
+
