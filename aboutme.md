@@ -13,7 +13,7 @@ My name is Kim geuntae
 -디스코드, 봇 외에도 페이스북, 인스타 등 다양한 분야에서도 있죠!
 
 ## 내 프로젝트들
-[TEAM-ALL](https://github.com/team-all-xyz) 다양한 분여를 한개로 라는 멘트로 다양한걸 한 곳에서 해보자는 의미로 시작한 TEAM-ALL
+[TEAM-ALL](https://github.com/team-all-xyz) 다양한 분야를 한개로 라는 멘트로 다양한걸 한 곳에서 해보자는 의미로 시작한 TEAM-ALL
 
 ## 내가 좋아하는 것
 [🎤 MIGYO (미교)](https://www.instagram.com/jjeon_migyo/)  
