@@ -20,6 +20,7 @@ My name is Kim geuntae
 [⛏ DEVELOP]()  
 ### MY SNS
 
+[youtube](http://youtube.geuntae.pw)  
 [INSTAGRAM](https://link.geuntae.pw/instagram.html)  
 [FACEBOOK](https://link.geuntae.pw/facebook.html)  
 [entry](http://naver.me/GrSsErFd)  
