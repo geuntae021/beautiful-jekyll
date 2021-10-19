@@ -27,7 +27,7 @@ My name is Kim geuntae
 [네이버 지식인](https://kin.naver.com/profile/index.nhn?u=aDbQw74ww5TBn8I61MADnCakm03ERY24HGLBkujle3o%3D)  
 
 ## 친구들의 말  
-A : 혁명적인 개**
+A : 혁명적인 개**  
 B : ㅗ
 
 
