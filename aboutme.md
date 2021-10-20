@@ -20,13 +20,14 @@ My name is Kim geuntae
 [⛏ DEVELOP]()  
 ### MY SNS
 
+[YOUTUBE](http://youtube.geuntae.pw)  
 [INSTAGRAM](https://link.geuntae.pw/instagram.html)  
 [FACEBOOK](https://link.geuntae.pw/facebook.html)  
-[entry](http://naver.me/GrSsErFd)  
+[ENTRY](http://naver.me/GrSsErFd)  
 [네이버 지식인](https://kin.naver.com/profile/index.nhn?u=aDbQw74ww5TBn8I61MADnCakm03ERY24HGLBkujle3o%3D)  
 
 ## 친구들의 말  
-A : 혁명적인 개**
+A : 혁명적인 개**  
 B : ㅗ
 
 
