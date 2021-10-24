@@ -18,6 +18,10 @@ My name is Kim geuntae
 ## 내가 좋아하는 것
 [🎤 MIGYO (미교)](https://www.instagram.com/jjeon_migyo/)  
 [⛏ DEVELOP]()  
+## 후원 하기  
+  
+[patreeon](https://patreon.com/geuntae446)  
+
 ### MY SNS
 
 [YOUTUBE](http://youtube.geuntae.pw)  
