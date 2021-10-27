@@ -40,7 +40,8 @@ B : ㅗ
 [익명 글들](https://link.geuntae.pw/facebook-groups/anonymous-articles1002.html)  
 [09년생](https://link.geuntae.pw/facebook-groups/09.html)  
 [디스코드 이용자](https://link.geuntae.pw/facebook-groups/디스코드-이용자.html)  
-[페이스북 그룹 홍보](https://link.geuntae.pw/facebook-groups/Facebookgrouppromotion.html)
+[페이스북 그룹 홍보](https://link.geuntae.pw/facebook-groups/Facebookgrouppromotion.html)  
+[discord bot developers](http://discord-bot-developers.geuntae.pw)  
   
 ## GITHUB  
 [깃허브](https://github.com/geuntae021)  
