@@ -26,7 +26,7 @@ My name is Kim geuntae
 ### MY SNS
 
 [YOUTUBE](http://youtube.geuntae.pw)  
-[INSTAGRAM](https://link.geuntae.pw/instagram.html)  
+[INSTAGRAM](https://instagram.com/dev_geuntae)  
 [FACEBOOK](https://link.geuntae.pw/facebook.html)  
 [ENTRY](http://naver.me/GrSsErFd)  
 [네이버 지식인](https://kin.naver.com/profile/index.nhn?u=aDbQw74ww5TBn8I61MADnCakm03ERY24HGLBkujle3o%3D)  
